@@ -1,7 +1,7 @@
 👋 Hi, I’m @Rufas254
 👀 interested in game building projet-and trading signal  
 🌱 i'm currently learning coding- 
-💞️ looking to collaborasten weth all developers- 
+💞️ looking to collaborate with all developers- 
 📫 reach me on on www.mwasdee@gmail.com/@mwasdeebot on Telegram- 
 😄 pronouns KENYAN FOREVER-  ...
 😢learning never ends.....
